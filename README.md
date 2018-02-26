@@ -14,4 +14,4 @@ Part 1
 
 Part 2
 
-[![Watch the video](https://img.youtube.com/vi/RQd1fFNtyLk/0.jpg)](https://youtu.be/RQd1fFNtyLk)
+[![Watch the video](https://img.youtube.com/vi/yRAaWvleaGk/0.jpg)](https://youtu.be/yRAaWvleaGk)
